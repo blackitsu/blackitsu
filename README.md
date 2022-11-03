@@ -1,0 +1,4 @@
+- 👋 Olá, eu sou @eduarda.mamcasz.souza
+- :+1: Minha forma de contato é eduarda.mamcasz.souza@escola.pr.gov.br
+- 👀 I’m interested in programação
+- 🌱 I’m currently learning programar jogos
